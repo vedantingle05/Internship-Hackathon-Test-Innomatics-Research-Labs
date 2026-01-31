@@ -1,1 +1,1 @@
-# Internship-Hackathon-Access-Test-Innomatics-Research-Labs
+# Internship-Hackathon-Test-Innomatics-Research-Labs
